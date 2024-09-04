@@ -24,6 +24,6 @@ Jeśli jesteś zainteresowany(-a) współpracą lub chciałbyś(-abyś) dowiedzi
 
 - E-mail: paulina@aplicativ.com
 - LinkedIn: https://www.linkedin.com/in/paulina-golonka-a78387a8/
-- strona www: https://sites.google.com/view/paulina-golonka/home
+- strona www: https://sites.google.com/aplicativ.com/paulina-golonka/home?authuser=0
 
 Dziękuję za odwiedziny mojego profilu i mam nadzieję na możliwość współpracy!
